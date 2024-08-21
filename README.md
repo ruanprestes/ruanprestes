@@ -5,4 +5,4 @@
 - 📫 Como me encontrar casa e escola
 - 😄 Pronomes ruan 
 - ⚡ Curiosidade gosto de jogar volei e estudar
-- ![](https://www.google.com/imgres?q=gif%20com%20nome%20ruan&imgurl=https%3A%2F%2Flogos.flamingtext.com%2FName-Logos%2FRuan-design-power-name.gif&imgrefurl=https%3A%2F%2Fflamingtext.com.br%2FName-Logos%2FRuan%2F&docid=7IqHpixy1M2SkM&tbnid=M_LUFPemXJxN3M&vet=12ahUKEwiLg-esjIeIAxXNpJUCHUbiDIwQM3oECBkQAA..i&w=455&h=331&hcb=2&ved=2ahUKEwiLg-esjIeIAxXNpJUCHUbiDIwQM3oECBkQAA)
+- ![](https://logos.flamingtext.com/Name-Logos/Ruan-design-power-name.gif)
